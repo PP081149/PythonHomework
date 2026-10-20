@@ -1,2 +1,1 @@
-# PythonHomework
-# PythonHomework
+นาย พิรุณ แซ่จึง6912732111
